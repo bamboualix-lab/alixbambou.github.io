@@ -1,1 +1,1 @@
-# alixbambou.github.io
+# bamboualix-lab.github.io
